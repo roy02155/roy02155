@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @roy02155
 - I’m interested in Hot springs, swimming and beach walks 👀
-- Something about blockchain 🌱 
+I would like to learn Something about blockchain 🌱 
 - My Email address is royking0002@gmail.com
 - 😄 I am a man who love peace 
 - ⚡ Fun fact: ...
